@@ -11,7 +11,7 @@
 
 ---
 
-**[🌐 ورود به سایت](https://matinmok.github.io/azadivpn/)** | **[🛒 خرید فیلترشکن](https://t.me/vpnbrandicobot)** | **[🎁 تست رایگان](https://t.me/testvpnazadibot)** | **[💬 پشتیبانی](https://wa.me/09227334601)**
+**[🌐 ورود به سایت](https://matinmok.github.io/azadivpn/)** | **[🛒 خرید فیلترشکن](https://t.me/vpnbrandicobot)** | **[🎁 تست رایگان](https://t.me/testvpnazadibot)** | **[💬 پشتیبانی](https://t.me/Mykalikal)**
 
 </div>
 
