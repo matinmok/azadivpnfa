@@ -204,6 +204,6 @@ https://matinmok.github.io/azadivpn/#servers
 ### 🔐 آزادی وی‌پی‌ان  
 **اینترنت آزاد، اتصال مطمئن**
 
-© 2025 AzadiVPN – All rights reserved.
+© 2026 AzadiVPN – All rights reserved.
 
 </div>
